@@ -4,6 +4,8 @@
 
 Get ready for a **legendary throwback** with a modern twist in **Super Mario 64 Online** – the ultimate 3D platformer that lets you **run, jump, fly, and explore** the magical Mushroom Kingdom like never before. Whether you're a nostalgic fan or a curious newcomer, this **retro-inspired online game** is your ticket to an **insane adventure** packed with secrets, speed, and surprises.
 
+## <a href="https://1kb.link/5GoHhl">👉 Click To Play Super Mario 64 Unblocked NOW 👈</a>
+
 ---
 
 ### **Why Super Mario 64 Online is a Must-Play**
